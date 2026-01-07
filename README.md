@@ -1,3 +1,2 @@
 # contoh
-file contoh update
-file contoh cintaku
+file contoh eroyy
